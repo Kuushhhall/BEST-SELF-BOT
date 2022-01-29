@@ -1,0 +1,2 @@
+# BEST-SELF-BOT
+idk
